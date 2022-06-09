@@ -1,2 +1,1 @@
-![Başlıksız-1](https://user-images.githubusercontent.com/74095539/172473661-1805b679-2c8a-4038-810e-de049cfba8a8.jpg)
-A group project with @erenkaraboga, @CicekIbrahim and @Posl1k
+![Project 1](https://user-images.githubusercontent.com/69691286/172819441-4aad2fdf-9295-42bc-8cd0-4df95a8026c2.jpg)
